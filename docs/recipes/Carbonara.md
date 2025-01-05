@@ -16,7 +16,7 @@ This recipe assumes that you know how to cook spaghetti. Remember not to add oil
 - Ground black pepper (about half a teaspoon)
 - Two large eggs or bigger
 - Pecorino cheese (recommended) or any other cheese you prefer within reasonable bounds
-- Sliced bell peppers
+- Sliced bell peppers or spring onions
 - 100g diced bacon
 - 80g sliced mushrooms (optional, but recommended)
 - 1/2 tbsp sliced garlic
